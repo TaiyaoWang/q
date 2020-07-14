@@ -1,4 +1,4 @@
-[link to researchgate!](www.researchgate.net/profile/Taiyao_Wang)
+[link to researchgate!](https://www.researchgate.net/profile/Taiyao_Wang)
 
 [link to linkedin!](https://www.linkedin.com/in/taiyaowang/)
 
